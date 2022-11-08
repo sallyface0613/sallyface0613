@@ -1,4 +1,4 @@
-- 👋 Hi, I’m giovana - student
+- 👋 Hi, I’m giovana -  student
 - 👀 I’m interested in learn about technology
 - 🌱 I’m currently learning about computational thinking
 - 💞️ I’m looking to collaborate on  my school 
