@@ -2,7 +2,7 @@
 - 👀 I’m interested in learn about technology
 - 🌱 I’m currently learning about computational thinking;programming. 
 - 💞️ I’m looking to collaborate on  my school 
-- 📫 How to reach me: first you need became rich! and be Sal Ficher or like Raphael Montes's books
+- 📫 How to reach me:like Raphael Montes's books
 - 1B - Santa Maria Goretti
 
 <!---
